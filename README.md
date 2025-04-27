@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/udz45a.gif">
+<img src="https://files.catbox.moe/20zbfw.webp">
 </p>  
 <p align="center">
   <strong>DUBIOUS SWAN!</strong> <br> https://dubiousswan.straw.page/ <br> <sub>20 y/o genderqueer sys</sub> 
