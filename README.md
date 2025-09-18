@@ -1,5 +1,5 @@
 <p align="center">
 <img src="https://files.catbox.moe/su30dk.webp">
-<br> <sub>refer to us by our pony! otherwise we use swan collectively. </sub> <br> <sub><strong>no dni i just hide freely lol</strong></sub> 
+<br> <sub>i am emmet.</sub> <br><br> <img src="https://files.catbox.moe/8i0ngv.webp" width="70" height="60"> <br> <sub>no dni. we are anti-censorship. ship whatever you want.</sub>
 <br> <br> <img src="https://files.catbox.moe/brcqd9.webp">
 </p> 
